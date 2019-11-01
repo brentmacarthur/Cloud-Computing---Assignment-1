@@ -1,1 +1,1 @@
-Cloud Computing - Assignment 1
+Cloud Computing - Group B, Assignment 1
